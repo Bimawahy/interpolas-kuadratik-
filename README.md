@@ -1,0 +1,1 @@
+# interpolas-kuadratik-
